@@ -1,0 +1,1 @@
+# hackintosh-hp-pavilion-570
